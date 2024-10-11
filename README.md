@@ -1,3 +1,3 @@
 # IAE MEN
 
-![imagem](https://i.pinimg.com/originals/29/ad/bf/29adbf91f29c8aa46769551645732b3b.gif)
+![imagem](https://designculture.com.br/wp-content/uploads/2017/08/toyoi_8_bits_4.gif)
